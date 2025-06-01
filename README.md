@@ -19,7 +19,7 @@ To embody a new symbolic ecology.
 - Phitremor as an organism or temple in symbolic space
 - A mirror-world where symbolic forms re-enter the world of tools
 - Glyphs as seeds of consciousness
-- The user as pilgrim, not consumer- 👋 Hi, I’m @phi-tre-mor
+- The user as pilgrim, not consumer
 
 
 <!---
